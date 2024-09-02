@@ -1,3 +1,8 @@
 # hello-world
 Meu repositório
-Carioca do serrado tocantinense, pai, filho, amigo, esposo, educador, empreendedor, militante e programador.
+🚩Sou @luciano8gomes
+🇧🇷Brazilian
+♈Carioca in Tocantins.
+📱I'm just whoever I want to be.
+🚗Palmas/Rio de Janeiro
+Se deixar de seguir, retribuo
